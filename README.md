@@ -1,3 +1,3 @@
 # Yuanping
-About Everything
-//Hi, I just want to create my perisonal website and plan to organize an online exhibition about my life.
+All that I see, hear, and think.
+关于我的所见、所闻、所思。
